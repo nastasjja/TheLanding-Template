@@ -1,1 +1,1 @@
-TheLanding-Template is from http://omahpsd.com/psd-design/free-thelanding-template/
+Psd-template TheLanding-Template is from http://omahpsd.com/psd-design/free-thelanding-template/
